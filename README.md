@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on  exciting tech projects
 - 📫 How to reach me mourtalladiop127@gmail.com
 - 😄 Pronouns: He /Him
-- ⚡ Fun fact: first language is i speak wolof french and english
+- ⚡ Fun fact: I speak wolof french and english
 - https://mourtish.github.io/
 
 <!---
