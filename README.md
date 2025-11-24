@@ -5,7 +5,7 @@
 - 📫 How to reach me mourtalladiop127@gmail.com
 - 😄 Pronouns: He /Him
 - ⚡ Fun fact: first language is french
-- https://mourtalla-diop-portfolio-staging.b12sites.com/index
+- https://mourtish.github.io/
 
 <!---
 Mourtish/Mourtish is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
